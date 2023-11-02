@@ -6,6 +6,6 @@ As well, math notes (how as as expected)
 
 So, fell free to comment (please be respectufull) and send some ideias ( I will be grateful) 
 
-#ai, #math, #beginner. 
+
 
 
